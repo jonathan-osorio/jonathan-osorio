@@ -1,4 +1,4 @@
-### Hi ✌️, My name is Jonathan Osório, and i'm a intern software engineer from Brazil
+### Hi ✌️, My name is Jonathan Osório, and i'm a Full Stack intern developer from Brazil
 
 
 ## 🌐 Socials:
